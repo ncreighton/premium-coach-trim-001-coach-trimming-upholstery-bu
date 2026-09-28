@@ -1,0 +1,2 @@
+# premium-coach-trim-001-coach-trimming-upholstery-bu
+Tired of losing track of your coach trimming projects, mismatched button sizes, and scattered notes across scraps of paper? Your craft deserves a dedicated lab—not a messy bench.  The Coach Trimming &amp; Upholstery Button Craft Lab transforms your Notion workspace into a digital atelier. Organize every project, from classic carriage upholstery to cust
